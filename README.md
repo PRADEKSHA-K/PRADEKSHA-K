@@ -10,7 +10,7 @@
 💬 Ask me about HTML
 
 📫 How to reach me:                                                                       
-[<img width="48" height="48" src="https://img.icons8.com/emoji/48/e-mail.png" alt="e-mail"/>](pradeksha.it22@bitsathy.ac.in)
+pradeksha.it22@bitsathy.ac.in
 
 😄 Pronouns: Techie
 
