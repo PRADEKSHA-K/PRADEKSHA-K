@@ -10,7 +10,8 @@
 💬 Ask me about HTML
 
 📫 How to reach me:                                                                       
-pradeksha.it22@bitsathy.ac.in
+- pradeksha.it22@bitsathy.ac.in
+- pradekshakumar@gmail.com
 
 😄 Pronouns: Techie
 
