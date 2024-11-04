@@ -17,4 +17,4 @@
 
 Connect with me:
 
-[<img width="48" height="48" src="https://img.icons8.com/color/48/linkedin.png" alt="linkedin"/>](https://www.linkedin.com/in/pradeksha-k-168a35259/)
+[<img width="48" height="48" src="https://img.icons8.com/color/48/linkedin.png" alt="linkedin"/>](https://www.linkedin.com/in/pradeksha-k-2b4333314/)
