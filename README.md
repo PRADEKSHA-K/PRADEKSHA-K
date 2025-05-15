@@ -5,7 +5,7 @@
 
 🔭 I’m currently working on BIT LINKEDIN
 
-🌱 I’m learning C
+🌱 I’m learning java
 
 💬 Ask me about HTML
 
